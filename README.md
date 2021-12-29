@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @HONDACIVIC-R
-- 👀 I’m interested in: programming and finding glitches.
+- 👀 I’m interested in: programming, finding glitches, history of Poland, philosophy and much more.
 - 🌱 I’m currently learning: C++, Java and Python.
 - 📫 How to reach me: discord - ziutek kolega#5447 or kwadratowybusiness@yahoo.com.
